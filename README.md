@@ -1,2 +1,2 @@
 # allendjl.github.io
-test
+djl and lq belong of our story
